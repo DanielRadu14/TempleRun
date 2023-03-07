@@ -1,5 +1,3 @@
 # TempleRun
-
-
-https://user-images.githubusercontent.com/99675016/223459819-7e5ad685-6b2c-4a93-9058-ea562f53eb80.mp4
+https://user-images.githubusercontent.com/99675016/223462174-3df96548-9999-4159-88fb-f5fd09165c5a.mp4
 
